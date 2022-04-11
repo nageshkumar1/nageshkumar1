@@ -1,3 +1,3 @@
 Online Preparation for SSC, Bank, Railway and all Other General Competitive Exams conducted by Centre and State Governments. Here, at Rednotes you will find free study materials like Online Test, Free Mock Tests, Best Solving Methods, Formulas, Shortcut Tricks ,other PDF Notes , All Govt Exams Test Series, Exercises with Examples.
 
-Our <a href=”https://rednotes.in/”> online mock test</a> series will give you the environment of the main exams and it is very important for your exam point of view. Our AI-based system gives suggestions to improve your weak areas/topics. So you can optimize your preparation status.
+Our <a href=”https://rednotes.in/”> online mock test</a> series will give you the environment of the main exams and it is very important for your exam point of view. Our AI-based system gives suggestions to improve your weak areas/topics. So you can optimize your preparation status. https://rednotes.in/
